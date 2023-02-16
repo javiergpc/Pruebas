@@ -1,1 +1,1 @@
-print("Free Minecraft here-----> Tlauncher free: https/pornhub.com/minecraft")
+print("Free Minecraft here-----> Tlauncher free: https://pornhub.com/minecraft")
